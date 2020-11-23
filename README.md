@@ -1,2 +1,2 @@
 # hello-world
-FA
+Aren't you fed up with these mf's pretending they're your friend? Aren't you tired of seein the same people who were M.I.A. just a few months back, all of the sudden speak up because somehow they were "wronged"? So now, they fight for not just themselves..but for us. It's nonsense. And the whole PS5 debacle is part of the problem. And these damn masks are part of the problem. And the spokespeople who present the information are the problem. What's a "man" to do? What can be done? Nothing - and and there it will lie.
